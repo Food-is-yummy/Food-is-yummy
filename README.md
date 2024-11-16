@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Food-is-yummy
+- 👀 I’m interested in food
+- 🌱 I’m currently learning about food
+- 💞️ I’m looking to collaborate on food
+- 📫 How to reach me, give me food
+- 😄 Pronouns: food(he him himself I myself)
+- ⚡ Fun fact: I like food
